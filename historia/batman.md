@@ -1,0 +1,1 @@
+Batman es un personaje ficticio que aparece en los cómics de DC Comics. Fue creado por Bob Kane y Bill Finger y apareció por primera vez en "Detective Comics #27" en 1939. Desde entonces, Batman se ha convertido en uno de los personajes más populares y reconocidos de la cultura popular.
